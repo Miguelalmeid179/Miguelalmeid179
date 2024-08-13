@@ -1,4 +1,4 @@
-### BOAS VINDAS AO MEU PERFIl!! 🔥
+### BOAS VINDAS AO MEU PERFIL!! 🔥
 
 Meu nome é Miguel almeida
 
